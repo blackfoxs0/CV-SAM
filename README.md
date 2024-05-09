@@ -1,1 +1,1 @@
-# CV-SAM
+# CV-SAM es el primer currículum hecho por mi uwu, debo mejorar y seguir mejorando para que así quede más chido cada ves más 
